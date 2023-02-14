@@ -1,1 +1,1 @@
-Modélisation[liens Word](https://docs.google.com/document/d/1zTTThwfw9LrjcxQf-SSy_hoEFMf3CbVkeQLg7J-nAqk/edit?usp=sharing)
+https://docs.google.com/document/d/1bClhXpCzJ5xoKK27gwh_tt6QH36ItgX6k7hoIbyPbb4/edit
